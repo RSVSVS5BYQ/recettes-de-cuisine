@@ -1,5 +1,5 @@
 ---
-title: "recette du croque Aveyronnais"
+title: "recette du croque Aveyronnais pour 5 personnes"
 ---
 Ingrédients :
 
