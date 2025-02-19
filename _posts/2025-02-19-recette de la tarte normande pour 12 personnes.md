@@ -1,5 +1,5 @@
 ---
-title: "Tarte Normande"
+title: "Recette de la Tarte Normande pour 12 personnes"
 ---
 Tarte Normande (12 personnes)
 
