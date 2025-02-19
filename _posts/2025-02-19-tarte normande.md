@@ -6,17 +6,11 @@ Tarte Normande (12 personnes)
 Ingrédients :
 
 • 10 pommes « golden »
-
 • 375g de sucre
-
 • 50g de farine
-    
 • 20 g de farine de boulanger
-    
 • 6 œufs 
-    
 • Pâte sablé
-    
 • 100g d’amande
 
 Matériel :
